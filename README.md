@@ -1,1 +1,0 @@
-# interview_for_test_position
